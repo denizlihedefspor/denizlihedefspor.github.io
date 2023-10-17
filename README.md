@@ -1,1 +1,0 @@
-# denizlihedefspor.github.io
